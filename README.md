@@ -1,0 +1,2 @@
+# Nigeria-Fuel-Subsidy-Removal-Blessing-or-Curse-
+Three years ago Nigeria abolished a fuel subsidy that had existed for nearly five decades. The fiscal implication was straightforward: the country was spending N4.4 trillion per year to keep pump prices at N184 per liter while import parity had already reached N590. The ceiling was not cheap. It was expensive, regressive, and economically wasteful.
