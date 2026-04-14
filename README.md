@@ -7,4 +7,4 @@ Key findings: N750 billion annual deadweight loss from the price ceiling; 76.2 p
 
 The reform achieved its fiscal objectives, but the social protection component did not. The gap between N4.4 trillion in annual savings and N528 billion in cash transfers actually deployed is not a technical problem. It is a political economy decision and structural bottleneck that prevents the reform from reaching the common citizen.
 
-# Bamidele, Owosuyi, Nigeria's Petroleum Market, 2023 to 2026: Price Ceiling Removal, Supply Distortions, Refinery Market Structure, Strategic Pricing Dynamics, Externalities, and Production Efficiency (March 18, 2026). Available at SSRN: http://.doi.org/10.2139/ssrn.6452198.
+**Bamidele, Owosuyi, Nigeria's Petroleum Market, 2023 to 2026: Price Ceiling Removal, Supply Distortions, Refinery Market Structure, Strategic Pricing Dynamics, Externalities, and Production Efficiency (March 18, 2026). Available at SSRN: http://.doi.org/10.2139/ssrn.6452198.**
